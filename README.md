@@ -1,4 +1,6 @@
 # Portfolio
-# Under Construction >_<
+# Under Construction🛠
 Still learning!!!
+Check out my portfolio👇🏼👇🏼
+🔗
 
